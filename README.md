@@ -2,3 +2,4 @@
 Repository latihan
 
 Hehehe
+hai hai
